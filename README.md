@@ -1,6 +1,6 @@
 - 👋 Hi, I’m cuijingfeilover,the girl most beautiful
 - 👀 I’m interested in ...ggive cuijingfei happinessnnizaijiuwanmeile
-- 🌱 I’m currently learning ...youaremyloveffeifei
+- 🌱 I’m currently learning ...youaremyloveffeifeibuzaijiujie,geinizuihao,zhaogunideganshou
 - 💞️ I’m looking to collaborate on ...giveyouthebest
 - 📫 How to reach me ...
 - 😄 Pronouns: ...全世界你最可爱
